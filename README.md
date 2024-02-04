@@ -1,0 +1,5 @@
+- 👋 Hi, I’m cripernik
+- 👀 I’m interested in metal music
+- 🌱 I’m currently learning computer science
+- 😄 Pronouns: he/her
+- ⚡ Fun fact: I'm Italian and I can't write/speak English correctly.
